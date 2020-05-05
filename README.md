@@ -1,2 +1,9 @@
 # hello-world
-Just another repository
+
+Hi Humans!
+
+Gerardo here, I like basically anything with and engine in it. I built my first engine in 2017 when I was 14 years old, it was a 60cc 2 Stroke engine from Amazon that I strapped onto a $100 Walmart bicycle. I also built another one in 2018. After working a summer job at the Boys and Girls CLub, I saved enough money for my first car a 2000 Honda Accord 5Speed for $900. I ended up selling it to someone from church who's car broke down and they needed a cheap car ASAP for work. I was devestated and cryed all night about it, but I knew I did the right thing. A few months later I decided to buy a fixer upper and got a 2001 Honda Civic 5Speed for $200. Soon after that I got a job at PriceRite a discount grocery store here in New England and saved most of my money for the 6 months I worked there. I got my first motorcycle soon after taking a MSF course to get my Motorcycle license. It was a 2009 Kawasaki Ninja 250R in Candy Thunder Blue. I got the bike with a rebuilt title for $1300 and it was in PERFECT condition. I rode it for 3 months and made a decision I will probally forever regret. I sold the bike to upgrade. After I had sold the bike to a young woman for $1900 to recover the expenses I did to the bike I looked for the bike to replace it, and soon after looking at many bikes I bought a 2003 Yamaha R6 that I fell in love with for $1900. After many weeks of work into getting it street ready the bike started to make a rattling noise, I have yet to find the root of the problem but I suspect my engine going on me so r.i.p my $1900 "investment for fun". And yah!! I started ranting about vehicles I have owned but I don't feel like deleting this now. Also someday I will probally look back on this to see where I started so a question to myself.
+
+Did you make the Force Recon team? what about learning to program? 
+
+Gerardo Reyes 5-5-2020 
